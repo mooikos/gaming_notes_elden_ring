@@ -1,0 +1,1 @@
+# gaming_notes_elden_ring
